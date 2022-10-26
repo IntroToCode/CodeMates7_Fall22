@@ -20,10 +20,12 @@
 - ¼ cup fresh berries (optional)
 - ½ ripe banana, sliced (optional)
 - 2 tablespoons chopped nuts, such as walnuts, pecans, or cashews (optional)
-- 2 tablespoons dried fruit, such as raisins, cranberries, chopped apples, chopped (optional)
+- 2 tablespoons dried fruit, such as raisins, cranberries, chopped apples, chopped green apples (optional)
 - Apricots (optional)
+- Almonds (optional)
 - Maple syrup (optional)
 - Honey (optional)
+- Jam (optional)
 
 ## Equipment needed:
 
