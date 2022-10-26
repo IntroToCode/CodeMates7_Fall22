@@ -2,6 +2,9 @@
 
 ## Servings: 
 
+
+
+    
 1
 
 ## Time to prepare: 
@@ -27,6 +30,7 @@
 - Saucepan
 - Bowl
 - Spoon
+- Knife
 
 ## Steps for preparation:
 
