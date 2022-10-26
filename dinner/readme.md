@@ -15,14 +15,14 @@
 2 tbsp chopped parsley, for garnish
 
 ## Equipment needed:
-no special equipment required!
+No special equipment required!
 
 
 ## Steps for preparation:
 1. Cook the pasta according to directions on the package, then drain and set aside. 
 2. Add stick of butter along with 1 cup heavy cream to a large skillet over medium heat. Allow butter to melt.
 3. Simmer for 5 minutes on low heat.
-4. Add 1 tbs garlic powder, 1/2 tsp salt, 1/2 tsp black pepper, and 2 cups of parmesan cheese to the skillet and whisk until cheese has melted.
+4. Add 1 tbs garlic powder, 1/2 tsp salt, 1/2 tsp black pepper, and 2 cups of parmesan cheese to the skillet and whisk until cheese has melted. If wanted you can also add blue cheese to give extra flavour.
 5. Serve the sauce over cooked pasta and top with 2tbs of chopped parsley.
 6. Serve with extra parmesan cheese a gusto.
 
