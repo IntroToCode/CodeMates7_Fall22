@@ -5,16 +5,16 @@
 ## Time to prepare: 30 minutes 
 
 ## Ingredients:
-1 pound pasta
-1/2 cup butter (1 stick), or substitute coconut oil if desired
-1 cup heavy cream
-1 tbs garlic powder
-1/2 tsp salt
-1/2 tsp black pepper
-2 cups grated parmesan cheese
-2 tbsp chopped parsley, for garnish
-1 tbsp red chilli flakes, for garnish
-1 tbsp salt
+- 1 pound pasta
+- 1/2 cup butter (1 stick), or substitute coconut oil if desired
+- 1 cup heavy cream
+- 1 tbs garlic powder
+- 1/2 tsp salt
+- 1/2 tsp black pepper
+- 2 cups grated parmesan cheese
+- 2 tbsp chopped parsley, for garnish
+- 1 tbsp red chilli flakes, for garnish
+- 1 tbsp salt
 
 ## Equipment needed:
 No special equipment required!
